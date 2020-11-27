@@ -1,2 +1,2 @@
-# ex1-Tippawan
+# ex1-siranee
 นางสาวศิราณี บุญเลิศ
